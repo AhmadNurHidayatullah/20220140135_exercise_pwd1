@@ -1,2 +1,2 @@
 WEB Toyota Supra 
-web ini menjelaskan tentang toyota supra
+web ini menjelaskan secara SINGKAT tentang toyota supra
